@@ -1,7 +1,14 @@
-### Hi there 👋
+## Hi there 👋
+
+
+I am not a specialist in this field, so I lack relevant knowledge 🌱
+<br><br>
+Being a non-specialist, the localization work is challenging for me!<br>
+Please help if you can....
+<br><br>
+
 
 <!--
-**HX3N/HX3N** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
 Here are some ideas to get you started:
 
