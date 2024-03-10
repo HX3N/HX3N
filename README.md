@@ -3,8 +3,7 @@
 
 I am not a specialist in this field, so I lack relevant knowledge 🌱
 <br><br>
-Being a non-specialist, the localization work is challenging for me!<br>
-Please help if you can....
+Please understand even if I behave incomprehensibly or strangely.
 <br><br>
 
 
