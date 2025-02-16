@@ -1,11 +1,3 @@
-## Hi there 👋
-
-
-I am not a specialist in this field, so I lack relevant knowledge 🌱
-<br><br>
-Please understand even if I behave incomprehensibly or strangely.
-<br><br>
-
 
 <!--
 
